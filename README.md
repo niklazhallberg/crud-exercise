@@ -1,4 +1,4 @@
-Nikla Hallberg
+Niklaz Hallberg
 
 Inlämningsuppgift 2 - Shopping del 2
 
