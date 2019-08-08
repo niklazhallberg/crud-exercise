@@ -2,7 +2,9 @@ Niklaz Hallberg
 
 Inlämningsuppgift 2 - Shopping del 2
 
-Individuell - Betyg Väl Godkänd
+Individuell 
+
+Erhållet Betyg; Väl Godkänd
 
 BRIEF
 
